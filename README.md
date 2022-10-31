@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AidanMayo
+- 👀 I’m interested in - Existing
+- 🌱 I’m currently learning - Something, not sure
+- 💞️ I’m looking to collaborate on - nothing ATM
+- 📫 How to reach me - Discord preferred Aidan#6969
