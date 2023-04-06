@@ -1,6 +1,3 @@
 - 👋 Hi, I’m @AidanMayo
-- Existing
- 
-- 📫 How to reach me
-- Discord: Aidan#6969
-- Twitter: @amayo2005
+
+- ❤️ Always ready to spend 5 months fixing an issue that would take 5 minutes
